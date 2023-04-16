@@ -1,1 +1,1 @@
-"# HBV201G-Prof2022" 
+"Lausn á prófi 2022" 
