@@ -1,1 +1,1 @@
-"Lausn á prófi 2022" 
+Lausn á prófi 2022 
